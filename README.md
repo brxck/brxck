@@ -7,5 +7,3 @@ When I'm not coding I prefer to be in a hammock or planning a backpacking trip i
 ### Find me at
 
 [brxck.dev](https://brxck.dev)
-
-[@3rxck](https://twitter.com/3rock)
